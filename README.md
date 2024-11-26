@@ -3,9 +3,9 @@
 Support & Download
 https://github.com/areteruhiro/Yay_NoAds
 
-https://youtube.com/shorts/fak1zHt7TUM
 
 （使い方）
+https://youtube.com/shorts/fak1zHt7TUM
 
 
 Enableをオンにすると、
